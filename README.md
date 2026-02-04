@@ -1,1 +1,0 @@
-# duwit-hacks-code-of-conduct
